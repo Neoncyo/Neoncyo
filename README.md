@@ -3,10 +3,6 @@
 
 - **I ONLY GO BY: 'Neon0506' 'Neoncyo' 'Neoko' or 'Neon' as my nickname!! anyone else is NOT me!**
 
-- Hobbies: **Graffiti, Gambling, Learning Programming, Playing Games, Talking With Friends**
-
-- About Me: **I Ain't got a lot of friends so I find this fun LOL!**
-
 - **I'm all around the internet, so you will find me in most places!**
 
 
